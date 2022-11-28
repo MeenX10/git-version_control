@@ -1,3 +1,3 @@
 # Read Me for Git
 
-Promo code : SALE50
+Promo code : SALE50 | FREE Shipping 
